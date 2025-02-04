@@ -112,6 +112,9 @@
 <p><strong><a href="https://www.facebook.com/WhispearaTested/">https://www.facebook.com/WhispearaTested/</a></strong></p>
 <p><strong><a href="https://www.facebook.com/WhispearaGet/">https://www.facebook.com/WhispearaGet/</a></strong></p>
 <h1><span style="text-decoration: underline;"><strong><strong>👇⭐OFFICIAL BLOG⭐👇</strong></strong></span></h1>
+<p><span style="text-decoration: underline;"><strong><strong><a href="https://groups.google.com/g/trywhispeara/c/5UkG_vpfgqs">https://groups.google.com/g/trywhispeara/c/5UkG_vpfgqs</a></strong></strong></span></p>
+<p><strong><a href="https://startupcentrum.com/tech-center/wispeara-hearing-loss-is-it-fake-or-legit-peruse-my-experience-2025">https://startupcentrum.com/tech-center/wispeara-hearing-loss-is-it-fake-or-legit-peruse-my-experience-2025</a></strong></p>
+<p><strong><strong><a href="https://github.com/Dwightdana/Whispeara/">https://github.com/Dwightdana/Whispeara/</a></strong></strong></p>
 <p><strong><a href="https://trywhispeara.godaddysites.com/">https://trywhispeara.godaddysites.com/</a></strong></p>
 <p><strong><a href="https://try-whispeara.jimdosite.com/">https://try-whispeara.jimdosite.com/</a></strong></p>
 <p><strong><a href="https://try-whispeara.mywebselfsite.net/">https://try-whispeara.mywebselfsite.net/</a></strong></p>
